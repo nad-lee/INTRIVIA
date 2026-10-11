@@ -10,3 +10,7 @@ Menurut saya, INTRIVIA sejauh ini cukup informatif dan menarik dan penugasan ini
 
 ## Kesan Pesan Cluster 18 Sejauh Ini 
 Menurut saya, Cluster 18 cukup welcome dan seru, memiliki kakak-kakak mentor yang baik dan sangat membantu, dan anggota yang saling mendukung satu sama lain. Semoga hubungan baik antarsesama yang dibangun selama INTRIVIA dapat terus terjalin bahkan setelah rangkaian INTRIVIA telah selesai.
+
+## Harapan Kuliah 
+Harapan saya, selama kuliah, saya mampu mendapatkan skills dan ilmu baru, memperluas pertemanan, meraih prestasi atau mungkin mengikuti lomba dan dapat lulus tepat waktu atau lebih cepat.
+
